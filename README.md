@@ -6,4 +6,5 @@
 
 💙 Join in the channel. [Ali Mahdi](https://www.youtube.com/@Eng.AliMahdi)
 
-![1 img](/1.PNG)
+![1 img](/1.JPG)
+![2 img](/2.JPG)
